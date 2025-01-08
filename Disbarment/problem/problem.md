@@ -1,6 +1,6 @@
 # Overview of Armando Crescenzi’s Disbarment and Petition for Reinstatement
 
-## Our Understanding of the problem **_what do we need to do_**
+## Our Understanding of the problem **_"what do we need to do"_**
 
 ## Background
 
