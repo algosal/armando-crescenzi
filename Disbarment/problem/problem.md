@@ -1,4 +1,4 @@
-## Overview
+## Overview of Armando Crescenzi's Disbarment
 
 A 100% disabled United States Army veteran and Pace University law graduate was previously admitted to the New York bar but later disbarred. Despite encountering serious challenges, including substance abuse, he has since taken significant steps to rehabilitate and wishes to seek reinstatement.
 
