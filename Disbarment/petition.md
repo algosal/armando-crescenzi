@@ -1,5 +1,5 @@
 **SUPREME COURT OF THE STATE OF NEW YORK**\
-**APPELLATE DIVISION, SECOND JUDICIAL DEPARTMENT**
+**APPELLATE DIVISION, FIRST JUDICIAL DEPARTMENT**
 
 ---
 
@@ -14,7 +14,7 @@ For Reinstatement to the Practice of Law Pursuant to Judiciary Law § Section 90
 
 **PETITION FOR REINSTATEMENT**
 
-TO: The Honorable Justices of the Appellate Division, Second Judicial Department
+TO: The Honorable Justices of the Appellate Division, First Judicial Department
 
 **PRELIMINARY STATEMENT**
 
