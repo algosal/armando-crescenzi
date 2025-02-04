@@ -1,14 +1,14 @@
-**SUPREME COURT OF THE STATE OF NEW YORK**  
+**SUPREME COURT OF THE STATE OF NEW YORK**\
 **APPELLATE DIVISION, FIRST JUDICIAL DEPARTMENT**
 
 ---
 
 In the Matter of the Application of
 
-**Armando Anthony Crescenzi**,  
+**Armando Anthony Crescenzi**,\
 Petitioner,
 
-For Reinstatement to the Practice of Law Pursuant to Judiciary Law \u00a7 90
+For Reinstatement to the Practice of Law Pursuant to Judiciary Law § Section 90
 
 ---
 
@@ -22,7 +22,7 @@ TO: The Honorable Justices of the Appellate Division, First Judicial Department
 
 2. By Order of this Court dated **November 4, 2004**, Petitioner was disbarred due to professional misconduct, specifically **misappropriation of client funds and conduct resulting from substance abuse issues**.
 
-3. Petitioner has fully complied with all conditions set forth in the disbarment order and now seeks reinstatement pursuant to Judiciary Law \u00a7 90 and 22 NYCRR 603.14.
+3. Petitioner has fully complied with all conditions set forth in the disbarment order and now seeks reinstatement pursuant to Judiciary Law section § 90 and 22 NYCRR 603.14.
 
 ---
 
@@ -58,19 +58,19 @@ TO: The Honorable Justices of the Appellate Division, First Judicial Department
 
 WHEREFORE, Petitioner respectfully requests that this Honorable Court:
 
-A. **Grant this Petition** and reinstate Petitioner to the practice of law in the State of New York;  
-B. **Restore Petitioner’s name** to the roll of attorneys duly licensed to practice in New York; and  
+A. **Grant this Petition** and reinstate Petitioner to the practice of law in the State of New York;\
+B. **Restore Petitioner’s name** to the roll of attorneys duly licensed to practice in New York; and\
 C. Grant such other relief as the Court deems just and proper.
 
-**Dated**: Bronx, NY
+**Dated**: Bronx NY\
 02/04/2025
 
 **Respectfully submitted,**
 
-**Armando Anthony Crescenzi**  
-2335 Yates Ave  
-Bronx, NY  
-1-646-472-4055  
-armandocrescenzi@yahoo.com
+**Armando Anthony Crescenzi**\
+2335 Yates Ave\
+Bronx, NY\
+1-646-472-4055\
+[armandocrescenzi@yahoo.com](mailto:armandocrescenzi@yahoo.com)
 
 ---
