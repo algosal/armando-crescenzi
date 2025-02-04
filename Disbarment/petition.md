@@ -14,7 +14,7 @@ For Reinstatement to the Practice of Law Pursuant to Judiciary Law § Section 90
 
 **PETITION FOR REINSTATEMENT**
 
-TO: The Honorable Justices of the Appellate Division, First Judicial Department
+TO: The Honorable Justices of the Appellate Division, Second Judicial Department
 
 **PRELIMINARY STATEMENT**
 
