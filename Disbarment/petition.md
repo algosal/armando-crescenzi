@@ -18,7 +18,7 @@ TO: The Honorable Justices of the Appellate Division, Second Judicial Department
 
 **PRELIMINARY STATEMENT**
 
-1. Petitioner, **Armando Anthony Crescenzi**, was admitted to the practice of law in the State of New York on **November 20, 1995** and was assigned Attorney Registration Number **Attorney Registration Number 2712230**.
+1. Petitioner, **Armando Anthony Crescenzi**, was admitted to the practice of law in the State of New York on **November 20, 1995** and was assigned **Attorney Registration Number 2712230**.
 
 2. By Order of this Court dated **November 4, 2004**, Petitioner was disbarred due to professional misconduct, specifically **misappropriation of client funds and conduct resulting from substance abuse issues**.
 
